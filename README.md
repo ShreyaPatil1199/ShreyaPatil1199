@@ -1,4 +1,6 @@
-![Beige Ivory Minimalist Business Card](https://github.com/ShreyaPatil1199/Get_To_Know_Me/assets/135635788/32573058-128b-46aa-84cd-67e1ef4d6e42)
+
+![Banner](https://github.com/ShreyaPatil1199/ShreyaPatil1199/assets/135635788/bccbb979-d512-4538-ad7c-1b8e541cf7a4) 
+
 
 
 ## ABOUT ME

@@ -1,5 +1,6 @@
 
-![Banner](https://github.com/ShreyaPatil1199/ShreyaPatil1199/assets/135635788/bccbb979-d512-4538-ad7c-1b8e541cf7a4) 
+
+![Banner](https://github.com/ShreyaPatil1199/ShreyaPatil1199/assets/135635788/1459a3ca-5de7-4f29-a148-7c2ad7d0d66f)
 
 
 
